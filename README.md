@@ -1,2 +1,2 @@
-Currently trying to learn HTML, and CSS.
-You can reach me at UwUMate_Main on Discord
+Currently learning to code.
+reach out on discord. durvated
