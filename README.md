@@ -1,2 +1,2 @@
 Currently learning to code.
-reach out on discord. durvated
+reach out on discord. uwumated
